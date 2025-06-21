@@ -1,5 +1,5 @@
 # HoneyPotContract
-⚡ HONEYPOT CONTRACT CAN BE PURCHASED HERE https://t.me/hivedevstore or t.ne/hivedev ⚡
+⚡ HONEYPOT CONTRACT CAN BE PURCHASED HERE https://t.me/hivedevstore or t.me/hivedev ⚡
 
 ALL CONTRACTS ARE TESTED AND READY FOR FULL WORK
 
